@@ -1,3 +1,5 @@
+<img width="1448" height="1086" alt="WhatsApp Image 2026-06-28 at 16 45 27" src="https://github.com/user-attachments/assets/7bdcf654-8023-4105-a323-e8fbe40fee82" />
+
 # 🌿 O ÚLTIMO GUARDIÃO
 
 ## 📖 Sobre o Jogo
